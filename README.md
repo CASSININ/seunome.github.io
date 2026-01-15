@@ -1,1 +1,0 @@
-# seunome.github.io
